@@ -6,4 +6,3 @@
 <p>
 
 Quotation: Coding market 
-https://www.youtube.com/watch?v=g7X8D24pkr4
